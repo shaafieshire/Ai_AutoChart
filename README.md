@@ -1,2 +1,2 @@
-# Max-trader
-Everything is possible 👊 📊 
+# 📊 Ai auto-chart
+in-prograss 👊  
