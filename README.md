@@ -1,2 +1,2 @@
 # 📊 Ai auto-chart
-in-prograss 👊  
+in-progress 👊  
